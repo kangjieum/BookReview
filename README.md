@@ -2,6 +2,6 @@
 
 # 2023
 
-<img src="https://user-images.githubusercontent.com/121919484/229572916-391ff300-4b0d-4dbf-8771-7d400f75c985.png" width="200" height="250"/>  
+<img src="https://contents.kyobobook.co.kr/sih/fit-in/458x0/pdt/9788932322766.jpg" width="200" height="250"/>  
 
 Duration: 2023-04-01 ~ 
